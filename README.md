@@ -1,1 +1,0 @@
-# izmir-web-tasarim-ajansi.github.io
